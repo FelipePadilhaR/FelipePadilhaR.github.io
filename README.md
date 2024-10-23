@@ -1,4 +1,5 @@
 Venho aqui em meu nome dizer que todos são amados, e que claramente info é superior a adm.
 Sim, me chamo *Felipe Ramos* sou uma pessoa alegre e carinhosa, mas na **noite** a cidade em meio as trévas me chama.
-!(https://www.google.com/imgres?q=itadori%20dando%20joia&imgurl=https%3A%2F%2Fblogger.googleusercontent.com%2Fimg%2Fb%2FR29vZ2xl%2FAVvXsEhXvjeT520Wt9Yyt1fL6xbMt9z4VDDcOg0kFAgpzqotL4GJVHWqXva_P8hHZ6NBG2LznrrE4S3KjvV9TM4e2jnsZtqyJf0s55vOQy4fV7OfxlyquzrxopmfkY4GmsU3oyNtgFZ74YRBfguj%2Fs1280%2FSatoro%2BGojo%2BPersonagens%2Bde%2BJujutsu%2BKaisen.jpg&imgrefurl=https%3A%2F%2Funiversoanimanga.blogspot.com%2F2021%2F02%2Flista-de-personagens-de-jujutsu-kaisen.html&docid=aUbxxd8zAo5EPM&tbnid=Jzm6ePqVaCgO_M&vet=12ahUKEwi2s7mC6KSJAxU0LbkGHUV5KUQQM3oECEYQAA..i&w=1280&h=720&hcb=2&ved=2ahUKEwi2s7mC6KSJAxU0LbkGHUV5KUQQM3oECEYQAA)
+(![jujutsu_kaVqhL3](https://github.com/user-attachments/assets/79d81a35-449c-4134-91a9-2e485e4065d1)
+)
 [my instagram](https://www.instagram.com/r4mos_fp/)
